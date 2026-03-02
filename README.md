@@ -1,0 +1,1 @@
+# bando_tecnologo_impianti
